@@ -1,0 +1,2 @@
+Learning AI FOR SIX MONTH STRIGHT !
+
